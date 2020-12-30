@@ -1,1 +1,1 @@
-# Old school notes
+# Notes from courses taken at SFU/Douglas

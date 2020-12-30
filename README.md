@@ -1,1 +1,1 @@
-# Old-school-notes
+# Old school notes
